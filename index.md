@@ -1,4 +1,5 @@
 Jose A. Nicdao, MBA Management Information Systems
+
 jonicdao@gmail.com | +1 408 569 9959 | San Jose, CA | dev.josenicdao.com | linkedin.com/in/josenicdao
 
 FULL STACK SOFTWARE ENGINEER | WEB DEVELOPER
